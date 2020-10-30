@@ -1,0 +1,1 @@
+Take the pizza base and then apply pizza base and ketchup on it and then keep the vegetables and chopped mushroom on it and then put mozarella cheese on it and then bake then pizza in the oven for 2:30 minutes and then put the simple cheese on it and yor pizza is ready
